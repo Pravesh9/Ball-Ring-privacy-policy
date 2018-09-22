@@ -1,1 +1,1 @@
-# Ball-Ring-privacy-policy
+This is the policy of ball and Ring
